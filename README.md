@@ -4,11 +4,11 @@ VEGA & Logic. Permission is hereby granted, free of charge, to any person obtain
 
 
 
-[رقم واحد](https://files.catbox.moe/wvggrs.jpg)
+https://files.catbox.moe/wvggrs.jpg
 
 
 
 ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ ⌯ 
 
 
-[صوره بث حيه](https://files.catbox.moe/1ahghk.jpg)
+https://files.catbox.moe/1ahghk.jpg
